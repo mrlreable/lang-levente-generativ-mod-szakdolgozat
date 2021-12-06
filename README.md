@@ -1,0 +1,1 @@
+# lang-levente-generativ-mod-szakdolgozat
